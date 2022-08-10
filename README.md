@@ -1,0 +1,2 @@
+# umidjon
+mening birinchi loyiham
